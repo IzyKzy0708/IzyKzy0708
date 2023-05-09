@@ -2,4 +2,4 @@
 - 👀 I’m interested in grow in computing
 - 🌱 I’m currently learning to program
 - 💞️ I’m looking to collaborate on with the companies
-- 📫 How to reach me in instagram: @izy_kzy
+- 📫 How to reach me in instagram: @izy_kzy_
